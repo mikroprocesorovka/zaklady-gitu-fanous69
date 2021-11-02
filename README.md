@@ -1,4 +1,4 @@
-# :sdgre: Fanda696
+# :sdgre: Fanda69
 
 
 ## 🤓 Course overview and learning outcomes 
